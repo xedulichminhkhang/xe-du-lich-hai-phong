@@ -1,0 +1,1 @@
+Minh Khang cung cấp đầy đủ các dòng xe từ 4 - 45 chỗ tại Hải Phòng. Đội xe đời mới, sạch sẽ, đảm bảo an toàn cho mọi hành trình của khách hàng ngay tại Hải Phòng. Chúng tôi cam kết phục vụ chuyên nghiệp, đúng giờ với giá cạnh tranh nhất thị trường Hải Phòng. Xem báo giá thuê xe du lịch Hải Phòng tại: https://xedulichminhkhang.com/thue-xe-du-lich-hai-phong/
